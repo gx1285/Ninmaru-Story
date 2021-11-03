@@ -69,5 +69,5 @@
 救わなければ  
 世界がなくなる  
 えいと「俺は、力が無いのに！どうすれば、ユウユウさんを！」  
-[Season2に続く](Season 2/ep5~ep7) 
+[Season2に続く](Season 2/ep5~ep7)   
 SEE YOU NEXT  
