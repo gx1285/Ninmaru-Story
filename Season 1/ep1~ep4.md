@@ -69,5 +69,5 @@
 救わなければ  
 世界がなくなる  
 えいと「俺は、力が無いのに！どうすれば、ユウユウさんを！」  
-[Season2に続く](https://gx1285.github.io/Ninmaru-Story/Season 2/ep5~ep7)   
+[Season2に続く](https://gx1285.github.io/Ninmaru-Story/Season 2/ep5~ep16)   
 SEE YOU NEXT  
